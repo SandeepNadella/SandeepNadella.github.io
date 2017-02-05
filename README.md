@@ -1,1 +1,0 @@
-# SandeepNadella.github.io
